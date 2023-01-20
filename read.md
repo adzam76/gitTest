@@ -12,4 +12,9 @@
 3. Ola!
 4. Hello friends!
 5. Hello again!)
+
 Как все запутано)))
+=======
+6. By Nikita ^)
+Sorry
+Help
